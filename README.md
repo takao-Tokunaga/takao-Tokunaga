@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi I'm Takao 👋
 
 <p align="left">
   <a href="https://www.credly.com/badges/b7fe3176-ed7b-4f7d-98db-05ebbe7ae6d8/public_url">
